@@ -1,0 +1,1 @@
+# ystech1.github.io
